@@ -5,7 +5,7 @@ Nomes e matrículas abaixo!
 
 João Gabriel - 01893499
 
-Jhonas Rickson Ferreira Silva - 
+Jhonas Rickson Ferreira Silva - 01893490
 
 Josinaldo Carvalho - 01884372
 
@@ -13,4 +13,4 @@ Aloísio Diogo Nascimento Lessa - 01887392
 
 Rykelvys de Carvalho Silva - 01889236
 
-J Gabriel - 
+José Gabriel da Silva - 01877586
